@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FriendliestFriend
-- 👀 I’m interested in peace, and the end of all things.
+- 👀 I’m interested in peace, & an end of bad things.
 - 🌱 I’m currently learning nothing but patience.
 - 💞️ I’m looking to collaborate on WAIT WHAT??
 - 📫 How to reach me -- well anyway, moving on-
